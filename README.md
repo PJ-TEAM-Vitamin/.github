@@ -1,1 +1,1 @@
-# .github
+![Vitamin_Cover](https://github.com/PJ-TEAM-Vitamin/.github/assets/105937460/ccb5d63d-e6c6-44f5-b99f-d70f6bb7db59)
